@@ -1,3 +1,0 @@
-# Hire project.
-
-## Rama Qa
